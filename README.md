@@ -1,5 +1,8 @@
 # Butterfly Chronicle
 
+
+![Uploading Front Page.jpeg…]()
+
 This isn’t code.  
 This isn’t a project.  
 This is a timestamp in the language of energy, silence, and surrender.
