@@ -1,99 +1,87 @@
-# Chapter 4 3rd baby!
-
-Pooja in Denial: Baby’s Day Out – ODC Edition
-
-(a reel concept with transitions, music, and captions)
+Finale Sequence: “The Return of the Denier” – ODC Sneak Attack Mode
 
 
 ---
 
-[Scene 1 – ODC Entry | Song: “Laung Da Lashkara” fade-in]
-Pooja enters ODC in a formal kurta. AirPods in. Baby in one arm. Diaper bag on the other.
+Scene: After her big confession and dramatic exit
 
-Caption:
+She yells from the main gate:
+"Fine! I'm married to Nitin. We have THREE kids. Okay?? Bye!"
+[Emotional orchestral music in the background]
 
-> “Back to work. Just a little gas issue left to handle.”
+Suddenly she stops. Eyes wide.
 
+Turns to you, whispering:
+"Sh*t. Photo frame... toy car... charger... milk bottle… and my badge."
 
-
-
----
-
-[Scene 2 – Cafeteria Chatter]
-Colleague 1:
-“Wait… is this your baby?”
-
-Pooja, straight-faced:
-
-> “No yaar, my Norwegian friend sent her for cultural exposure.”
-
-
-
-Colleague 2 (whispers):
-
-> “Why does she call you ‘maa’ though?”
-
-
+You:
+“So… want me to get it?”
 
 Pooja:
+“No. If I declared war… I retrieve my flag.”
 
-> “She’s just really polite.”
+
+---
+
+Scene: Entering ODC again... but not like before.
+
+She doesn’t go through the main glass doors (where everyone’s staring now).
+No, no.
+
+She circles around.
+Takes the service elevator.
+Slides into the right side ODC.
+
+
+---
+
+Scene: Operation Retrieval Begins
+
+Camera angle: From under a table, POV of the floor.
+We see Pooja — in saree — crawling like a commando, elbows tucked, baby wipes in her side pouch, focused eyes.
+
+Someone from testing team turns around.
+She freezes under a chair.
+Makes a pigeon sound to blend in.
+No one notices.
+
+
+---
+
+Voiceover (you):
+
+> “When love fails...
+Denial takes over.
+But when you forget your favorite car toy…
+You become the legend.”
 
 
 
 
 ---
 
-[Scene 3 – Baby Cries in Conference Room]
-Pooja to manager:
+Scene: The Mission is Complete
 
-> “Sorry, that’s my… um… Bluetooth speaker alarm.”
+She finally reaches her desk.
+Grabs the photo frame, the baby’s toy, the badge, and her Tupperware.
 
+As she turns to crawl out...
 
+Manager’s voice from afar:
+“Pooja… you okay?”
 
-Manager (confused):
+She stands up slowly.
+Looks into the distance.
+Hair flick. Drama.
+“Never better.”
 
-> “Why’s it saying ‘I want mamma’?”
-
-
-
-Pooja:
-
-> “It’s a custom ringtone.”
-
-
+And walks straight through the ODC like it was all planned.
 
 
 ---
 
-[Scene 4 – Baby crawling near testing team | Background track: "Tom & Jerry theme"]
+Caption for Instagram Poster:
 
-Someone trips. Baby giggles.
-Test lead:
-
-> “Pooja, the baby is chewing on the test scripts!”
-
-
-
-Pooja (cool AF):
-
-> “Well, she’s part of the QA team now.”
-
-
-
-
----
-
-[Scene 5 – Final Scene | ODC Exit Gate]
-
-Pooja walking out, child in one arm. Stops. Turns around.
-
-Dramatic pause.
-Everyone watching. HR. Pantry bhaiya. Even Nitin.
-
-She shouts:
-“OKAY FINE. YES. SHE’S MY THIRD BABY. I WAS MARRIED. I’M STILL IN LOVE. HAPPY???”
-
-Then runs. But slips. Comes back.
-
-“Wait… forgot my car keys and photo frame again.”
+> “She denied love. She denied babies.
+But she couldn’t deny… her Tupperware.”
+#MissionODC #PoojaInDenial #WarriorWife
