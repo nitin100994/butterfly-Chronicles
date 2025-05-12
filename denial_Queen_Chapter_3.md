@@ -1,3 +1,53 @@
+Chapter 3 : Gastro resolution abroad!!! 🤯 
+
+Instagram Update:
+
+Caption:
+"Sunsets, sandwiches & solutions. Europe gave me answers."
+
+Location: Oslo, Norway
+Photo: Pooja holding a stroller (blurred) and posing in front of a gastrology clinic.
+
+Hashtag:
+#TravelForHealing
+#MindOverStomach
+#NotAMotherJustBloated
+
+
+---
+
+Return to India:
+
+Colleagues:
+“Pooja, this baby is adorable! Yours?”
+
+Pooja (sipping latte):
+“Oh, no no, I brought her from Norway. It’s a... treatment simulator.”
+
+You whisper:
+“You named the simulator ‘Aaravi’?”
+
+She glares.
+“Respect privacy, Mr. Roommate.”
+
+
+---
+
+Ultimate Denial Move:
+
+At immigration, the officer says,
+“Ma’am, declare dependent please.”
+
+She says:
+“No dependents. Only emotions.”
+
+
+---
+
+Punchline Ending:
+
+> “She went abroad to cure her bloating. Came back with a passport-holding child and still said it was air pressure.”
+
 # Chapter 4 3rd baby!
 
 Pooja in Denial: Baby’s Day Out – ODC Edition
@@ -92,7 +142,7 @@ Dramatic pause.
 Everyone watching. HR. Pantry bhaiya. Even Nitin.
 
 She shouts:
-“OKAY FINE. YES. SHE’S MY THIRD BABY. I WAS MARRIED. I’M STILL IN LOVE. HAPPY???”
+“OKAY FINE. YES. SHE’S MY THIRD BABY. I WAS MARRIED TO NITIN, I’M STILL IN LOVE. HAPPY???”
 
 Then runs. But slips. Comes back.
 
