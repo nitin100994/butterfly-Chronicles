@@ -66,7 +66,7 @@ Pooja:
 
 [Scene 4 – Baby crawling near testing team | Background track: "Tom & Jerry theme"]
 
-Richa trips. Baby giggles.
+Someone trips. Baby giggles.
 Test lead:
 
 > “Pooja, the baby is chewing on the test scripts!”
