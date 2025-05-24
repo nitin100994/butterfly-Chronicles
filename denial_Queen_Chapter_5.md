@@ -58,7 +58,7 @@ You walk up. Wearing a full sherwani. Chain out. Chest up. Smiling like a man wh
 “This isn’t a reception. It’s a *reception simulator.* Just like her Norwegian baby.”
 
 **Pooja (whispers):**  
-“Nitin shut up or I’ll simulate your funeral.”
+“Nitin shut up or I’ll simulate your beating.”
 
 ---
 
