@@ -1,17 +1,11 @@
-Chapter 3 : Gastro resolution abroad!!! 🤯 
+Chapter 3: Gastro Resolution Abroad!!! 🤯
 
-Instagram Update:
-
-Caption:
-"Sunsets, sandwiches & solutions. Europe gave me answers."
+Instagram Caption:
+“Sunsets, sandwiches & solutions. Europe gave me answers.”
 
 Location: Oslo, Norway
-Photo: Pooja holding a stroller (blurred) and posing in front of a gastrology clinic.
-
-Hashtag:
-#TravelForHealing
-#MindOverStomach
-#NotAMotherJustBloated
+Photo: Pooja holding a stroller (blurred), posing in front of a gastrology clinic
+Hashtag: #TravelForHealing #MindOverStomach #NotAMotherJustBloated
 
 
 ---
@@ -21,13 +15,13 @@ Return to India:
 Colleagues:
 “Pooja, this baby is adorable! Yours?”
 
-Pooja (sipping latte):
-“Oh, no no, I brought her from Norway. It’s a... treatment simulator.”
+Pooja (sipping latte ☕):
+“Oh, no no, I brought her from Norway. It’s a… treatment simulator.”
 
-You whisper:
-“You named the simulator ‘Aaravi’?”
+You (whispers):
+“You named the simulator Aaravi?”
 
-She glares.
+Pooja (glaring):
 “Respect privacy, Mr. Roommate.”
 
 
@@ -35,10 +29,10 @@ She glares.
 
 Ultimate Denial Move:
 
-At immigration, the officer says,
+Immigration Officer:
 “Ma’am, declare dependent please.”
 
-She says:
+Pooja:
 “No dependents. Only emotions.”
 
 
@@ -46,104 +40,89 @@ She says:
 
 Punchline Ending:
 
-> “She went abroad to cure her bloating. Came back with a passport-holding child and still said it was air pressure.”
+She went abroad to cure her bloating.
+Came back with a passport-holding child
+and still said it was air pressure.
 
-# Chapter 4 3rd baby!
 
-Pooja in Denial: Baby’s Day Out – ODC Edition
+---
 
-(a reel concept with transitions, music, and captions)
+Chapter 4: Third Baby! – Baby’s Day Out: ODC Edition 👶🏽
 
 
 ---
 
 [Scene 1 – ODC Entry | Song: “Laung Da Lashkara” fade-in]
-Pooja enters ODC in a formal kurta. AirPods in. Baby in one arm. Diaper bag on the other.
+
+Pooja enters ODC in a formal kurta. AirPods in. Baby in one arm. Diaper bag in the other.
 
 Caption:
-
-> “Back to work. Just a little gas issue left to handle.”
-
-
+“Back to work. Just a little gas issue left to handle.”
 
 
 ---
 
 [Scene 2 – Cafeteria Chatter]
+
 Colleague 1:
 “Wait… is this your baby?”
 
-Pooja, straight-faced:
-
-> “No yaar, my Norwegian friend sent her for cultural exposure.”
-
-
+Pooja (deadpan):
+“No yaar, my Norwegian friend sent her for cultural exposure.”
 
 Colleague 2 (whispers):
-
-> “Why does she call you ‘maa’ though?”
-
-
+“Why does she call you maa though?”
 
 Pooja:
-
-> “She’s just really polite.”
-
-
+“She’s just really polite.”
 
 
 ---
 
 [Scene 3 – Baby Cries in Conference Room]
-Pooja to manager:
 
-> “Sorry, that’s my… um… Bluetooth speaker alarm.”
-
-
-
-Manager (confused):
-
-> “Why’s it saying ‘I want mamma’?”
-
-
+Manager:
+“Pooja, everything okay?”
 
 Pooja:
+“Sorry, that’s my… um… Bluetooth speaker alarm.”
 
-> “It’s a custom ringtone.”
+Manager (confused):
+“Why’s it saying ‘I want mamma’?”
 
-
+Pooja:
+“It’s a custom ringtone.”
 
 
 ---
 
-[Scene 4 – Baby crawling near testing team | Background track: "Tom & Jerry theme"]
+[Scene 4 – Baby Crawling Near Testing Team | Background: Tom & Jerry Theme 🎵]
 
 Someone trips. Baby giggles.
-Test lead:
 
-> “Pooja, the baby is chewing on the test scripts!”
-
-
+Test Lead:
+“Pooja! The baby is chewing on the test scripts!”
 
 Pooja (cool AF):
-
-> “Well, she’s part of the QA team now.”
-
-
+“Well, she’s part of the QA team now.”
 
 
 ---
 
-[Scene 5 – Final Scene | ODC Exit Gate]
+[Scene 5 – ODC Exit Gate – Dramatic Ending]
 
-Pooja walking out, child in one arm. Stops. Turns around.
+Pooja walking out, child in arm.
+Stops. Turns. Everyone watching—HR, pantry bhaiya, even Nitin.
 
-Dramatic pause.
-Everyone watching. HR. Pantry bhaiya. Even Nitin.
+Pooja (yells):
+“OKAY FINE. YES. SHE’S MY THIRD BABY.
+I WAS MARRIED TO NITIN.
+I’M STILL IN LOVE. HAPPY???”
 
-She shouts:
-“OKAY FINE. YES. SHE’S MY THIRD BABY. I WAS MARRIED TO NITIN, I’M STILL IN LOVE. HAPPY???”
+She runs. Slips. Comes back.
 
-Then runs. But slips. Comes back.
-
+Pooja:
 “Wait… forgot my car keys and photo frame again.”
+
+
+  
