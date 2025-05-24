@@ -1,128 +1,118 @@
-Chapter 3: Gastro Resolution Abroad!!! 🤯
+# Chapter 3: Gastro Resolution Abroad!!! 🤯
 
-Instagram Caption:
+**Instagram Caption:**  
 “Sunsets, sandwiches & solutions. Europe gave me answers.”
 
-Location: Oslo, Norway
-Photo: Pooja holding a stroller (blurred), posing in front of a gastrology clinic
-Hashtag: #TravelForHealing #MindOverStomach #NotAMotherJustBloated
-
+**Location:** Oslo, Norway  
+**Photo:** Pooja holding a stroller (blurred), posing in front of a gastrology clinic  
+**Hashtag:** #TravelForHealing #MindOverStomach #NotAMotherJustBloated
 
 ---
 
-Return to India:
+## Return to India:
 
-Colleagues:
+**Colleagues:**  
 “Pooja, this baby is adorable! Yours?”
 
-Pooja (sipping latte ☕):
-“Oh, no no, I brought her from Norway. It’s a… treatment simulator.”
+**Pooja (sipping latte ☕):**  
+“Oh, no no, I brought her from Norway. It’s a… *treatment simulator*.”
 
-You (whispers):
-“You named the simulator Aaravi?”
+**You (whispers):**  
+“You named the simulator ‘Aaravi’?”
 
-Pooja (glaring):
+**Pooja (glaring):**  
 “Respect privacy, Mr. Roommate.”
 
-
 ---
 
-Ultimate Denial Move:
+## Ultimate Denial Move:
 
-Immigration Officer:
+**Immigration Officer:**  
 “Ma’am, declare dependent please.”
 
-Pooja:
+**Pooja:**  
 “No dependents. Only emotions.”
 
-
 ---
 
-Punchline Ending:
+## Punchline Ending:
 
-She went abroad to cure her bloating.
-Came back with a passport-holding child
+She went abroad to cure her bloating.  
+Came back with a passport-holding child  
 and still said it was air pressure.
 
+---
+
+# Chapter 4: Third Baby! – Baby’s Day Out: ODC Edition 👶🏽
 
 ---
 
-Chapter 4: Third Baby! – Baby’s Day Out: ODC Edition 👶🏽
-
-
----
-
-[Scene 1 – ODC Entry | Song: “Laung Da Lashkara” fade-in]
+## Scene 1 – ODC Entry | Song: “Laung Da Lashkara” fade-in
 
 Pooja enters ODC in a formal kurta. AirPods in. Baby in one arm. Diaper bag in the other.
 
-Caption:
+**Caption:**  
 “Back to work. Just a little gas issue left to handle.”
 
-
 ---
 
-[Scene 2 – Cafeteria Chatter]
+## Scene 2 – Cafeteria Chatter
 
-Colleague 1:
+**Colleague 1:**  
 “Wait… is this your baby?”
 
-Pooja (deadpan):
-“No yaar, my Norwegian friend sent her for cultural exposure.”
+**Pooja (deadpan):**  
+“No yaar, my Norwegian friend sent her for *cultural exposure*.”
 
-Colleague 2 (whispers):
-“Why does she call you maa though?”
+**Colleague 2 (whispers):**  
+“Why does she call you ‘maa’ though?”
 
-Pooja:
+**Pooja:**  
 “She’s just really polite.”
 
-
 ---
 
-[Scene 3 – Baby Cries in Conference Room]
+## Scene 3 – Baby Cries in Conference Room
 
-Manager:
+**Manager:**  
 “Pooja, everything okay?”
 
-Pooja:
+**Pooja:**  
 “Sorry, that’s my… um… Bluetooth speaker alarm.”
 
-Manager (confused):
+**Manager (confused):**  
 “Why’s it saying ‘I want mamma’?”
 
-Pooja:
+**Pooja:**  
 “It’s a custom ringtone.”
-
 
 ---
 
-[Scene 4 – Baby Crawling Near Testing Team | Background: Tom & Jerry Theme 🎵]
+## Scene 4 – Baby Crawling Near Testing Team | Background: Tom & Jerry Theme 🎵
 
 Someone trips. Baby giggles.
 
-Test Lead:
+**Test Lead:**  
 “Pooja! The baby is chewing on the test scripts!”
 
-Pooja (cool AF):
+**Pooja (cool AF):**  
 “Well, she’s part of the QA team now.”
-
 
 ---
 
-[Scene 5 – ODC Exit Gate – Dramatic Ending]
+## Scene 5 – ODC Exit Gate – Dramatic Ending
 
-Pooja walking out, child in arm.
+Pooja walking out, child in arm.  
 Stops. Turns. Everyone watching—HR, pantry bhaiya, even Nitin.
 
-Pooja (yells):
-“OKAY FINE. YES. SHE’S MY THIRD BABY.
-I WAS MARRIED TO NITIN.
+**Pooja (yells):**  
+“OKAY FINE. YES. SHE’S MY THIRD BABY.  
+I WAS MARRIED TO NITIN.  
 I’M STILL IN LOVE. HAPPY???”
 
 She runs. Slips. Comes back.
 
-Pooja:
+**Pooja:**  
 “Wait… forgot my car keys and photo frame again.”
 
-
-  
+---
