@@ -43,7 +43,7 @@ I wanted to see how it feels before I resign. Nothing more.”
 
 ## Crowd Reaction: 🤯
 
-**Colleague 1:** “Wait what?? Retirement at 29?”  
+**Colleague 1:** “Wait what?? Retirement at 31?”  
 **Colleague 2:** “Is that baby in the corner part of your exit plan?”  
 **Colleague 3:** “Why is Nitin wearing a sherwani??”
 
