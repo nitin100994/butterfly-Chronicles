@@ -47,7 +47,7 @@ But she keeps saying:
 ## Behind the scenes...
 
 **You (hearing her whisper on phone):**  
-“Nathan, I’m in the middle of sprint planning. Yes, I took my vitamins. No, I won’t name the baby ‘Jupiter’.”  
+“Nitin, I’m in the middle of sprint planning. Yes, I took my vitamins. No, I won’t name the baby ‘Jupiter’.”  
 
 You walk in.  
 She cuts the call.
