@@ -1,4 +1,4 @@
-# Chapter 6: Metamorphosis – “She Was Already the Butterfly” 🦋❤️
+# Metamorphosis – “She Was Already the Butterfly” 🦋❤️
 
 ---
 
