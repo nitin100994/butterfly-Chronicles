@@ -1,4 +1,4 @@
-# 🌞✨ The Truth You Can’t Draw – A Reflection by Nitin Joshi
+# 🌞✨ Truth Can’t be drawn – A Reflection by Nitin Joshi
 
 > “I don’t remember her features.  
 > I remember her *presence*.”
