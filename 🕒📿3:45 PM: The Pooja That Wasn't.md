@@ -79,7 +79,10 @@ She turns to him and says sweetly:
 
 > “Beta, woh puja kar rahi hai. 😷 Actually thoda sick bhi hai… stomach gas… allergy… bahar ka kahti rehti hai...” 🤐🤒
 
-Meanwhile, Nitin, outside the gate, smirks, looks at his watch.
+Meanwhile, Nitin, outside the gate, smirks, looks at his watch pooja at this time 😲, nonetheless...
+
+After 30 minutes of laughing and joking with aunty — while Pooja called over 10 times, one of which aunty forgot to cut — she ended up hearing us talk and laugh like long-lost friends. 😅📞💬
+
 
 > **“It’s 3:45 PM. And she’s doing puja?”** he chuckles silently. Okay aunty 😏 🕺🕶️.
 
