@@ -1,5 +1,4 @@
-# 🏠 3:45 PM: The Pooja That Wasn't" has everything:
-
+# 🏠 3:45 PM: The Pooja That Wasn't
 ---
 
 ## 🎧 Scene Open – The Dancing Girl
