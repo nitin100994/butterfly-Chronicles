@@ -83,7 +83,7 @@ She fumes:
 
 Chai Sutta clenches biceps.  
 She sees it.  
-Roti ka pressure. Love ka tension.  
+Love ka tension.  
 Biceps ka compression. 💪🌪️
 
 ---
