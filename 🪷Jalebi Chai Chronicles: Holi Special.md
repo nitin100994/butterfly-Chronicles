@@ -30,7 +30,7 @@ He waits.
 She finishes.  
 Goes to wash hands.  
 **10 minutes later... she's vanished.**  
-> “She’s avoiding. But why? Mujhe kya bura laga?” 😢
+> “She’s avoiding. But why?” 😢
 
 Chai Sutta exits canteen with fake swag. 😎
 
