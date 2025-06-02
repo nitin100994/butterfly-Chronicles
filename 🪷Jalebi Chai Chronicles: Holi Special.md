@@ -4,7 +4,7 @@
 
 ---
 
-### 🎬 Scene 1: The Battlefield – *Canteen 2.0* 🍽️💥
+## 🎬 Scene 1: The Battlefield – *Canteen 2.0* 🍽️💥
 
 👧🏻 **Jalebi Baby** is seated. Roti in one hand, spinach sabzi in another.  
 Eating like a princess monk—silent, graceful, leafy. 🧘‍♀️🥬🍽️
