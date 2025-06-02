@@ -94,7 +94,7 @@ He overtakes.
 She follows.
 
 He stops mid-way.  
-Types furiously (to ChatGPT 🤓).  
+Types furiously.  
 Then swag-walks off to smoking zone. 🚬
 
 **Jalebi Baby?**  
