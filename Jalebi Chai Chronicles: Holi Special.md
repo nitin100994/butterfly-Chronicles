@@ -1,4 +1,3 @@
-```
 # 🪷 Jalebi Chai Chronicles: Holi Special  
 ### *Operation - Pasandida Ladki Ko Rang Lagana 🔥💘😤*
 
@@ -7,7 +6,7 @@
 ## 🎬 Scene 1: The Battlefield – *Canteen 2.0* 🍽️💥
 
 👧🏻 **Jalebi Baby** is seated. Roti in one hand, spinach sabzi in another.  
-Eating like a princess monk—silent, graceful, leafy. 🧘‍♀️🥬🍽️
+Eating like a princess monk — silent, graceful, leafy. 🧘‍♀️🥬🍽️
 
 👦🏻 **Chai Sutta** lurks like a ninja with heartbreak and 200% commitment. ☕🚬  
 > “Aaj nahi toh kab? Agar Holi par bhi nahi, toh rang kab lagega??” 🎨😩
@@ -18,7 +17,7 @@ Eating like a princess monk—silent, graceful, leafy. 🧘‍♀️🥬🍽️
 
 Suddenly, he vanishes.  
 Where? The washroom. 🧻🚽  
-(A 5-min timepass strategy. Let leafy love simmer.)
+*(A 5-min timepass strategy. Let leafy love simmer.)*
 
 ---
 
@@ -30,8 +29,7 @@ Like: *“Iss bite ke baad kya karein… milne aaye ya bhaag jaaye?”*
 He waits.  
 She finishes.  
 Goes to wash hands.  
-**10 minutes later... she's vanished.**
-
+**10 minutes later... she's vanished.**  
 > “She’s avoiding. But why? Mujhe kya bura laga?” 😢
 
 Chai Sutta exits canteen with fake swag. 😎
@@ -56,7 +54,7 @@ Just when he's near the gate…
 Boom 💥!  
 **Jalebi Baby & her ‘just a friend’** approach!
 
-🎵 BG Score: *Tadap tadap ke... 😭*
+🎵 *BG Score: Tadap tadap ke...* 😭
 
 ---
 
@@ -67,7 +65,7 @@ Quick divert:
 > “Sir, Holi party kab hai?” 😬
 
 **Jalebi Baby**: *“That was for me… No? OMG. He diverted. He SAVED me.”*  
-10 points to Chai Sutta. 🪙
+✅ 10 points to Chai Sutta. 🪙
 
 ---
 
@@ -137,10 +135,10 @@ Office turns into a silent rom-com set. 🎬
 ## 🎭 Insta Caption Drop
 
 > “You said no.  
-But you brought out that UP accent.  
-And trust me…  
-There are better things in life than Holi.  
-Like Jalebi with Saag.” 🍬🥬🔥
+> But you brought out that UP accent.  
+> And trust me…  
+> There are better things in life than Holi.  
+> Like Jalebi with Saag.” 🍬🥬🔥
 
 ---
 
@@ -156,4 +154,3 @@ Like Jalebi with Saag.” 🍬🥬🔥
 ## 💬 Coming Soon…
 
 **“Jalebi Baby aur Lift Mein Lockdown”** 🛗🦋😂
-```
