@@ -148,9 +148,3 @@ Office turns into a silent rom-com set. 🎬
 - #SaagAndSwag  
 - #OperationHoli❤️💪  
 - #ButterflyEffectActivated
-
----
-
-## 💬 Coming Soon…
-
-**“Jalebi Baby aur Lift Mein Lockdown”** 🛗🦋😂
