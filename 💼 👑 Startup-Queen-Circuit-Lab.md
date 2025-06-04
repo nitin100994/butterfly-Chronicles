@@ -78,6 +78,3 @@ VC guy follows. Professors are still staring at the light that turned red when s
 
 ---
 
-```
- Let me know when you’re ready for **Episode 02** or want a more romantic twist in the Robotics Lab 📡💞. , 
-me: na, nahi chiye bc kamm sai kamm rakh...
