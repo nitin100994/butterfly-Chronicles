@@ -2,7 +2,6 @@
 
 # 🦋 Chapter: MLM & Masoomiyat — A Butterfly’s Guide to Escaping the Glitter Trap
 
-**From The Butterfly Chronicles 🦋 by Nitin Joshi**
 
 ---
 
