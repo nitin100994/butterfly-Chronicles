@@ -124,4 +124,3 @@ Your Scorpio 🦂 | Your Guddu 🧸 | Probably Overthinking Again 🧠
 
 ---
 
-#ButterflyChronicles #MLM #GudduWarning #HeyArya #PoeticAwareness #ModernMahabharata
