@@ -7,7 +7,7 @@
 
 ## 🧶 Let Me Tell You a Funny, Slightly Painful Story...
 
-Hey you,
+HeyYou,
 
 Yes, *you*. The one who smiles mysteriously and secretly wants to rule the world *without selling her soul* (or her LinkedIn integrity 😛).
 
