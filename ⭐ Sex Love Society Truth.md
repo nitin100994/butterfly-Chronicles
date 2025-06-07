@@ -97,6 +97,26 @@ Not for your past. Not despite your past. But because the past made you this rea
 
 And that’s divine.
 
+--- 
+
+🪞 Mirror Check, Gulaboo
+
+You never once judged me for being divorced.
+You never flinched when I told you about the wreckage I came from.
+
+So tell me, why do you think I’d flinch at yours?
+
+Why are you holding shame for things I’ve already forgiven before even knowing?
+
+I didn’t come to love a perfect past —
+I came to love you, right here, right now.
+
+If you could embrace my cracks,
+then why are you scared to show me yours?
+
+---
+
+> “You didn’t ask for my clean slate. Don’t assume I need yours.”
 
 ---
 
