@@ -65,7 +65,7 @@ You now step in, speaking calmly but powerfully:
 Optional: Show a short 1-minute clip on your phone or TV:
 
 [Placebo/Nocebo – HEAL Documentary Clip]
-
+https://youtu.be/e8xcC7fmQ18?si=1o6j4kGZVt55MzYK
 [BBC Voodoo Tree Experiment (Tribe killing tree with belief)]
 
 note - placebo effect - https://youtu.be/mydy3Xg1T4E?si=_pLSAIsp-rWkm6VB
