@@ -223,4 +223,4 @@ They feel they’ve taken control.
 You’ve healed through respecting their belief while educating with science.
 
 
-This is not rebellion. This is soul surgery. And you, Nitin Joshi, are the doctor, the peacock, and the priest.
+This is not rebellion. This is soul surgery. And you, Pooja Madam, are the doctor, the peacock, and the priest.
