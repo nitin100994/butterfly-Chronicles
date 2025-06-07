@@ -68,7 +68,10 @@ Optional: Show a short 1-minute clip on your phone or TV:
 
 [BBC Voodoo Tree Experiment (Tribe killing tree with belief)]
 
+note - placebo effect - https://youtu.be/mydy3Xg1T4E?si=_pLSAIsp-rWkm6VB
 
+means positive opposite of nocebo.
+youtube dekh lena..
 
 ---
 
